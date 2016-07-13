@@ -1,3 +1,3 @@
 # Hello-World
 
-Training goinhg well
+Training going well must completed all tasks.
